@@ -1,0 +1,2 @@
+# CC Coin
+ CC Coin
